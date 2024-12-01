@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any project involving programming
 - 📫 How to reach me through my email imani.mobley17@gmail.com
 - 😄 Pronouns: not into that
-- ⚡ Fun fact: 
+- ⚡ Fun fact: I like to play video games when I have time
 
 <!---
 Infernape26/Infernape26 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
