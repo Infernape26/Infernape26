@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Infernape26
+- 👋 Hi, I’m @Infernape26 / Imani
 - 👀 I’m interested in learning how program in any program language for any task
 - 🌱 I’m currently learning how to make video games
 - 💞️ I’m looking to collaborate on any project involving programming
